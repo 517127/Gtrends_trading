@@ -1,0 +1,2 @@
+# Gtrends_trading
+ 
